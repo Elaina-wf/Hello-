@@ -2,7 +2,7 @@
 
 👀 I’m interested in weeb stuff
 
-🌱 I’m currently learning FE
+🌱 I’m currently learning IT
 
 💞️ I’m looking to collaborate on nothing, im new
 
