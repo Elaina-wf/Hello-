@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on nothing, im new
 
-📫 How to reach me in discord : Elaina đông lạnh 🌠#1710
+📫 How to reach me in discord : "Ireina"🌠#6271
